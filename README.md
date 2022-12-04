@@ -10,7 +10,7 @@
             ▒╖╟██▀╓▓▌▄▄██▀▀▒           ╙▀████████████▀     
              ▀██████▀▀▀``                  ``"▀````         
 
-███████████████████████████████████████████████████████
+█████████████████████████████████████████████████
 
     » Hello, my name is Kazi, welcome to my Hub ;) (no pun intended)
         My socials will be listed here periodically since over time aliases may change.
