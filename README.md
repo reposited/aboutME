@@ -1,6 +1,6 @@
 » About Me
 
-    » Hello, my name is Repo (Reposited), welcome to my hub (no pun intended)
+    » Hello, my name is Repo (Reposited), welcome to my hub (no pun intended).
         My socials will be listed here periodically since over time.
         Aliases may change.
 
